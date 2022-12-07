@@ -1,1 +1,1 @@
-# rsschool-cv
+https://OlhaSafronava.github.io/rsschool-cv/cv

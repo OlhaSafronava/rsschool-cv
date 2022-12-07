@@ -1,1 +1,1 @@
-https://OlhaSafronava.github.io/rsschool-cv/cv
+https://OlhaSafronava.github.io/rsschool-cv/

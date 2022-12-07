@@ -1,6 +1,6 @@
 # Olha Safronava
 ***********************
-## Contacts for communication:
+## Contacts:
 * Phone: +37529 6628756
 * E-mail: safrik_om1987@mail.ru
 * GitHub: Olha Safronava 
